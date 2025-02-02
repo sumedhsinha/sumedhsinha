@@ -15,5 +15,5 @@ I am Sumedh Sinha, a CS student at Rutgers!
   
 - 😄 Pronouns: he/him
   
-- ⚡ Fun fact: I love planes ✈️
+- ⚡ Fun fact: I love traveling ✈️
 
