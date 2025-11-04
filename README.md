@@ -17,7 +17,7 @@ I have been awarded multiple times during my academic career, and look forward t
 <!-- - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ... 
 - 💬 Ask me about -->
-- 📫 How to reach me: sumedhsinha [at] outlook [dot] com
+- 📫 How to reach me: sumedhsinha twozerotwotwo [at] gmail [dot] com
   
 - 😄 Pronouns: he/him
   
